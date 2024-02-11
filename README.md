@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on anything tbh .. I need experience .
 - 📫 How to reach me- akshitsokusale@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I like art tbh 
+- ⚡ Fun fact: I like art+music
+   
 
 <!---
 Artifice18/Artifice18 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
