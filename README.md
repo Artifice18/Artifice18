@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Artifice18
+- 👋 Hi, I’m Akshit
 - 👀 I’m interested in learning coding, coding projects.
 - 🌱 I’m currently learning c and python ( trying app dev too )
 - 💞️ I’m looking to collaborate on anything tbh .. I need experience .
